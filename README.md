@@ -1,1 +1,1 @@
-# makflur-shop.com
+# makfluri-shop.com
